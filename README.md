@@ -1,0 +1,4 @@
+- I'm a introvert individual who always curious about about things that catch my eyes.
+- I speak 3 diffrent languages, which are Vietnamese, Finnish and English. 
+- I'm intrested in languages, and countries culture and history.
+- I'm always curious and intrested in diffrent things, whatever catch my eye. Like tech, music and cusines.
